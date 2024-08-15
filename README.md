@@ -1,5 +1,4 @@
 # 👋 Hey, I'm Harsh Range
-- 🏫 I'm CSE **Sophomore** @IIITDMJ
 - 😄 Always eager to *explore new things*.
 - ⚓ Reach out to me at **harshrange123@gmail.com**
 
